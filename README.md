@@ -1,3 +1,3 @@
 # Script-ML-By-Gozali
 
-Image script files
+Gambar skin skin
